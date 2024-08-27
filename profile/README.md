@@ -1,5 +1,5 @@
 ## Hi there 👋
-![banner](https://media.licdn.com/dms/image/C4D1BAQFIL_dx_GcLhg/company-background_10000/0/1599491564185/italspaziosrl_cover?e=1723100400&v=beta&t=OwJ8_AbhvEQKHYjzdIA3hBguic4kusmO4bAOlGhdrAA)
+![banner](https://www.italspazio.com/wp-content/uploads/2020/05/connessioni.jpg)
 Italspazio s.r.l. born in 2005, is the perfect blend of experience and innovation.
 
 The staff of Italspazio S.r.l. is made by a team of engineers with ten-year experience and a group of young engineers who are constantly engaged in the research and development of innovative solutions and innovative projects, such as those based on aerospace.
